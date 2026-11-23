@@ -1,1 +1,1 @@
-CS @ HM ​> Cybersecurity ​> Pursuing BTL1
+CS @ HM | IT-Systems & Cybersecurity
